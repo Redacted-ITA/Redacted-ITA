@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Redacted-ITA
+- 👀 I’m interested in e All
+- 🌱 I’m currently learning All
+- 💞️ I’m looking to collaborate on Everyone
+- 📫 How to reach me discord: redacted_ita
+- 😄 Pronouns: Red
+- ⚡ Fun fact: All
